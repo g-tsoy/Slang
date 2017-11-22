@@ -1,19 +1,19 @@
 # 40 American Slang Words and Phrases You Need to Know
 
 1. **Feeling blue; have the blues** — A feeling of depression or sadness - **Скучать или быть в депрессии**
-1. **Bail** — Intransitive verb for leaving abruptly.
+1. **Bail** — Intransitive verb for leaving abruptly. ** 
 1. **A buck** — Slang term for a the American dollar. - **Сленговое выражение для Американского доллора**
 1. **By the skin of (my/your/his/her) teeth** — just barely.
 1. **Creep (n.)** —  An unpleasantly weird/strange person. - **Неприятно страннный человек**
 1. **Couch Potato** — A lazy person who spends the bulk of their time engaged in things that can be done while sitting on a couch.-**Ленивый человек, который проводит большую часть времени, занимаясь вещами, которые можно выполнить сидя на диване**
 1. **Cram** — To study feverishly before an exam typically done after neglecting to study consistently.
 1. **Crash** — To abruptly fall  asleep, or to show up without invitation.
-1. **Down to earth** — And adjective for practicality and lack of pretense.
+1. **Down to earth** — And adjective for practicality and lack of pretense. **приземленный**
 1. **Drive up the wall** — To irritate. - **Раздражать**
 1. **For Real** — A proclamation of honesty. - **Провозглашение честности**
 1. **Going Dutch** — When each person, usually in a dating scenario, pays for his/her own meal. - **Когда каждый человек, обычно в случае свидания, платит сам/сама за свою еду.** 
 1. **The cold shoulder** — A metaphor for deliberately ignoring someone.
-1. **Give a ring** — To call someone on the telephone.
+1. **Give a ring** — To call someone on the telephone. **звонить кому-то**
 1. **Hyped (adj.)** — A very excited state.
 1. **Hang out** — To casually gather together or spend time with someone in a social manner.
 1. **Jack up** — An abrupt increase, typically in the price of something.
@@ -27,10 +27,10 @@
 1. **Sweet** — An adjective that describes something that is good, or nice.
 1. **Tight** — An adjective that describes closeness between competitors, i.e. a tight competition.
 1. **Trash** — Can be used as an intransitive verb for destruction. e.g. “He trashed the car.”
-1. **Uptight** — Stuffy, persnickety, the opposite of relaxed.
+1. **Uptight** — Stuffy, persnickety, the opposite of relaxed. **встревоженный**
 1. **Wrap (something) up** — To finish or complete something.
 1. **Zonked** — Completely exhausted.Our next post will cover British slang terms that Americans find confusing. Until then, here are some of our favorite American slang words:
-1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to English speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
+1. **Pants** — CLOTHING RETAILERS TAKE NOTE: The Brits say ‘trousers’ … The American default word for the article of clothing that covers the legs and pelvic region seems pretty general and innocuous to Englis h speakers in the U.S. To the actual English, however, ‘pants’ is the primary word they use for ‘underwear.’ And while American cinema and television typically writes the word ‘knickers’ for underwear into the vocabulary of British characters—that’s probably just for comedic effect since ‘pants’ wouldn’t induce any response—the most common British word for underwear really is ‘pants.’ Americans tend not to notice how often they refer to their so-called pants until someone from the U.K. joins their ranks. Once that happens they begin to notice restrained snickering every time ‘pants’ are referenced in a polite conversation.
 1. **For the birds** — Imagine how this phrase must sound to someone who doesn’t understand that it refers to something that is substandard in some respect. Is it a bag of seeds or some kind of yard ornament reference? The Brits sometimes use the word ‘bird,’ to refer to women, in the same way Americans use ‘chicks.’ So, maybe it comes off like reference to girlishness. Who knows?
 1. **Bought the farm** — ”I didn’t know he wanted to move to the country,” is how a British person might respond to hearing this phrase. At this point ‘bought the farm,’ is a general reference to untimely death. However, the phrase originates from WWII-era military accidents involving unreliable aircraft crashing into rural European countryside properties resulting in damages for which the U.S. government was responsible to pay, thereby, ‘buying the farm,’ so to speak.
 1. **Jonesing** — To want, crave, or desire something intensely, and its noun form, ‘joneser,’ (a person who wants or craves something intensely), isn’t always apparent even to Americans. The Oxford Dictionary associates this word’s slang usage with Jones Alley in Manhattan, a haven for drug addicts in the 1960s. The unsavory drug culture connotations continue today. However the definition of ‘joneser,’ has been broadened among some circles to include describing a person whose character is found wanting, i.e. lacking, as opposed to someone who simply wants something desperately.
